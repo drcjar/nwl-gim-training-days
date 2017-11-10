@@ -13,7 +13,7 @@ North West London GIM Training Days
 
 ## June 2018 - Gastroenterology and Hepatology
 
-# November 2018 - Cardiology
+## November 2018 - Cardiology
 
 ## January 2019 - Neurology and Critical Care
 
