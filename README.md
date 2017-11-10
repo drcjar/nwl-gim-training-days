@@ -3,7 +3,7 @@ North West London GIM Training Days
 
 # Training Days (provisional plan)
 
-## Monday 27 th November 2017 - Endocrine (confirmed)
+## Monday 27th November 2017 - Endocrine (confirmed)
 
 ## December 2017 - Psychiatry, Law, and Ethics
 
