@@ -8,8 +8,8 @@ North West London GIM Training Days
 ## December 2017 - Psychiatry, Law, and Ethics
 
 ## Friday 16th Feb 2018 - Respiratory (confirmed)
-[sign up](https://www.eventbrite.com/e/respiratory-general-internal-medicine-training-day-for-north-west-london-trainees-tickets-39476209405)
-[details](https://github.com/drcjar/resp-gim-training-day)
+- [sign up](https://www.eventbrite.com/e/respiratory-general-internal-medicine-training-day-for-north-west-london-trainees-tickets-39476209405)
+- [details](https://github.com/drcjar/resp-gim-training-day)
 
 ## March 2018 - Renal
 
