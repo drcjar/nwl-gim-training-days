@@ -5,8 +5,6 @@ North West London GIM Training Days
 
 ## Monday 27th November 2017 - Endocrine (confirmed)
 
-## December 2017 - Psychiatry, Law, and Ethics
-
 ## [Friday 16th Feb 2018 - Respiratory (confirmed)](https://github.com/drcjar/resp-gim-training-day)
 
 ## March 2018 - Renal
