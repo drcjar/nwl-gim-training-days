@@ -9,6 +9,8 @@ North West London GIM Training Days
 
 ## March 2018 - Renal
 
+## Tuesday 24th April 2018 - Ethics & Law in the Mary Cochrane LT, Education Centre, CXH (confirmed)
+
 ## June 2018 - Gastroenterology and Hepatology
 
 ## November 2018 - Cardiology
