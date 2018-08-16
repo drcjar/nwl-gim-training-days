@@ -15,8 +15,8 @@ Organised by Colin with ?
 ## June 2018 - Gastroenterology and Hepatology
 Organised by Colin with ?
 
-## November 2018 - Cardiology
-Organised by Carl with Afzal Sohaib et al
+## November 2018 - Cardiology in the Morris Lecture Theatre, Robin Brook Centre, St Bartholomew's Hospital.
+Organised by Carl with Roshan Weerackody 
 
 ## January 2019 - Neurology and Critical Care
 Organised by Carl with Gezz Zwannenberg
